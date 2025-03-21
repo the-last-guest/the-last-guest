@@ -54,6 +54,8 @@ ____________________________________________________________________
 
 yes i am the number one palletshipping fan even if the ship does have a bad reputation...💔 I DONT HATE GOH BECAUSE OF JOURNEYSHIPPING i just think hes really annoying.
 
+_________________________________________________________
+
 🌟 **BOUNDARIES !!**
 
 - **c+h** :: ENCOURAGED!! i love c+h and always welcome it, even when im on dni, dniuc, etc. ^_^
@@ -77,6 +79,8 @@ yes i am the number one palletshipping fan even if the ship does have a bad repu
 - mari !! (omori)
 - alluka zoldyck !! (hunter x hunter)
 - felix the fish !! (andys apple farm)
+
+___________________________________________________________________
 
 🌟 **FAVOURITE POKEMON !!**
 
