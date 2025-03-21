@@ -8,9 +8,7 @@
 
 🌟 **age** :: 13
 
-____________________________________________________________________
-
-🌟 **FANDOMS !! bold are my main interests... int if we share interests!!**
+# 🌟 **FANDOMS !!**
 
 - **pokemon**
 - **roblox**
@@ -50,12 +48,12 @@ ____________________________________________________________________
 - disney dreamlight valley
 - stardew valley
 
+bold are my mains... int if we share interests!!
+
 
 yes i am the number one palletshipping fan even if the ship does have a bad reputation...💔 I DONT HATE GOH BECAUSE OF JOURNEYSHIPPING i just think hes really annoying.
 
-_________________________________________________________
-
-🌟 **BOUNDARIES !!**
+# 🌟 **BOUNDARIES !!**
 
 - **c+h** :: ENCOURAGED!! i love c+h and always welcome it, even when im on dni, dniuc, etc. ^_^
 - **interacting** :: YES!! pls int!! just w2i because im almost always offtab..
@@ -66,7 +64,7 @@ _________________________________________________________
 
 ![2961637e0724df16f935828ce770326c](https://github.com/user-attachments/assets/f2a492cb-d495-4b65-b7e4-c50839dd279e)
 
-🌟 **COMFIEST CHARACTERS !!**
+# 🌟 **COMFIEST CHARACTERS !!**
 
 - ash ketchum !! (pokemon)
 - gary oak !! (pokemon)
@@ -79,9 +77,7 @@ _________________________________________________________
 - alluka zoldyck !! (hunter x hunter)
 - felix the fish !! (andys apple farm)
 
-___________________________________________________________________
-
-🌟 **FAVOURITE POKEMON !!**
+# 🌟 **FAVOURITE POKEMON !!**
 
 - umbreon !!
 - litten !!
