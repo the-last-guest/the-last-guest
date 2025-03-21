@@ -85,10 +85,11 @@ ___________________________________________________________________
 
 - umbreon !!
 - litten !!
+- torracat !!
 - articuno !!
 - mew !!
-- zeraora
-- totodile
-- meowth
-- vulpix
-- ninetales
+- zeraora !!
+- totodile !!
+- meowth !!
+- vulpix !!
+- ninetales !!
