@@ -8,9 +8,6 @@
 
 **age** :: 13
 
-![divider](https://github.com/user-attachments/assets/2e68a200-b142-49db-97f8-d47400872ec6)
-
-
 **FANDOMS !! bold are my main interests... int if we share interests!!**
 
 - **pokemon**
