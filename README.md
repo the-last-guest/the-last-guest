@@ -40,8 +40,7 @@ ____________________________________________________________________
 - samurai pizza cats
 - yokai watch
 - ghostbusters
-- teen titans
-- teen titans go
+- teen titans + teen titans go
 - spider-man
 - american dad
 - the simpsons
