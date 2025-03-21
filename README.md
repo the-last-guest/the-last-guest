@@ -66,12 +66,12 @@ yes i am the number one palletshipping fan even if the ship does have a bad repu
 
 # 🌟 **COMFIEST CHARACTERS !!**
 
-- ash ketchum !! (pokemon)
+- ash ketchum !! (pokemon) (also a fictkin)
 - gary oak !! (pokemon)
 - red !! (pokemon)
 - blue oak !! (pokemon)
 - misty !! (pokemon)
-- guest 1337 !! (the last guest)
+- guest 1337 !! (the last guest) (copinglink,)
 - metal sonic !! (sonic the hedgehog)
 - mari !! (omori)
 - alluka zoldyck !! (hunter x hunter)
