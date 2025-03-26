@@ -4,6 +4,8 @@
 
 💫 **HI! im ash/sketch/guest or any other name you may know me by!! my former git user was soniccds!!** 💫
 
+**my internet is really bad, so sometimes ill disconnect for minutes at a time... if i disconnect for a long time and come back and youre sitting in the spot you are, pls whisper me if you want me to move, because i usually dont notice because im always offtab!!**
+
 🌟 **pronouns** :: he/him
 
 🌟 **age** :: 13
