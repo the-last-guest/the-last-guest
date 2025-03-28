@@ -71,7 +71,7 @@ yes i am the number one palletshipping fan even if the ship does have a bad repu
 - ash ketchum !! (pokemon) (fictkin)
 - gary oak !! (pokemon)
 - red !! (pokemon)
-- blue oak !! (pokemon)
+- blue/green oak !! (pokemon)
 - misty !! (pokemon)
 - guest 1337 !! (the last guest) (copinglink,)
 - metal sonic !! (sonic the hedgehog) (fictkin)
