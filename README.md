@@ -2,7 +2,7 @@
 
 ![c882603351459f7958cd54e4eaaf0af6](https://github.com/user-attachments/assets/0b62e11d-bbb5-4921-a465-52d66d1820a1)
 
-💫 **HI! im ash/sketch/guest or any other name you may know me by!! my former git user was soniccds!!** 💫
+💫 **HI! im ash/mew/guest or any other name you may know me by!! my former git user was soniccds!!** 💫
 
 **my internet is really bad, so sometimes ill disconnect for minutes at a time... if i disconnect for a long time and come back and spawn sitting in the spot you are, pls whisper me if you want me to move, because i usually dont notice because im always offtab!!**
 
