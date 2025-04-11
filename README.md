@@ -79,6 +79,7 @@ yes i am the number one palletshipping fan even if the ship does have a bad repu
 - mari !! (omori)
 - alluka zoldyck !! (hunter x hunter)
 - felix the fish !! (andys apple farm)
+- fix-it felix jr !! (wreck it ralph)
 
 # 🌟 **FAVOURITE POKEMON !!**
 
