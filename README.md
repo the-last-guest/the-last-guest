@@ -82,11 +82,12 @@ yes i am the number one palletshipping fan even if the ship does have a bad repu
 
 # 🌟 **FAVOURITE POKEMON !!**
 
+- mew !!
+- luxray !!
 - umbreon !!
 - litten !!
 - torracat !!
 - articuno !!
-- mew !!
 - zeraora !!
 - totodile !!
 - meowth !!
