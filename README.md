@@ -24,6 +24,8 @@
 - sailor moon
 - IT
 - stranger things
+- the outsiders
+- middle school the worst years of my life
 - vocaloid
 - garfield
 - pet sematary
