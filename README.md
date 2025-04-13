@@ -13,6 +13,7 @@
 # 🌟 **FANDOMS !!**
 
 - **pokemon**
+- **the outsiders**
 - **roblox**
 - **rblx yt**
 - **the last guest**
@@ -24,7 +25,6 @@
 - sailor moon
 - IT
 - stranger things
-- the outsiders
 - middle school the worst years of my life
 - vocaloid
 - garfield
