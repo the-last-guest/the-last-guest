@@ -12,8 +12,8 @@
 
 # 🌟 **FANDOMS !!**
 
-- **pokemon**
 - **the outsiders**
+- **pokemon**
 - **roblox**
 - **rblx yt**
 - **the last guest**
@@ -71,6 +71,8 @@ yes i am the number one palletshipping fan even if the ship does have a bad repu
 
 # 🌟 **COMFIEST CHARACTERS !!**
 
+- johnny cade (the outsiders)
+- dallas winston (the outsiders) (fictkin)
 - ash ketchum !! (pokemon) (fictkin)
 - gary oak !! (pokemon)
 - red !! (pokemon)
