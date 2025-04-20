@@ -13,17 +13,18 @@
 # 🌟 **FANDOMS !!**
 
 - **the outsiders**
+- **the karate kid**
+- **IT**
 - **pokemon**
-- **roblox**
-- **rblx yt**
-- **the last guest**
-- **sonic the hedgehog**
-- **wreck it ralph + ralph breaks the internet**
-- **get a snack at 4am**
+- roblox
+- rblx yt
+- the last guest
+- sonic the hedgehog
+- wreck it ralph + ralph breaks the internet
+- get a snack at 4am
 - evade
 - omori
 - sailor moon
-- IT
 - stranger things
 - middle school the worst years of my life
 - vocaloid
