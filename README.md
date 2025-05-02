@@ -12,20 +12,21 @@
 
 # 🌟 **FANDOMS !!**
 
-- **the outsiders**
-- **the karate kid**
-- **IT**
-- **pokemon**
+- ***the outsiders***
+- ***the karate kid***
+- ***IT***
+- ***stranger things***
+- pokemon
 - roblox
 - rblx yt
 - the last guest
+- minecraft
 - sonic the hedgehog
 - wreck it ralph + ralph breaks the internet
 - get a snack at 4am
 - evade
 - omori
 - sailor moon
-- stranger things
 - middle school the worst years of my life
 - vocaloid
 - garfield
@@ -54,7 +55,7 @@
 - disney dreamlight valley
 - stardew valley
 
-bold are my mains... int if we share interests!!
+bold + italics are my mains... int if we share interests!!
 
 
 yes i am the number one palletshipping fan even if the ship does have a bad reputation...💔 I DONT HATE GOH BECAUSE OF JOURNEYSHIPPING i just think hes really annoying.
