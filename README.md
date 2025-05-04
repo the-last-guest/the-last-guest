@@ -17,14 +17,11 @@
 - ***the karate kid***
 - ***IT***
 - pokemon
-- roblox
 - rblx yt
 - the last guest
 - minecraft
 - sonic the hedgehog
-- wreck it ralph + ralph breaks the internet
-- get a snack at 4am
-- evade
+- wreck it ralph
 - omori
 - sailor moon
 - middle school the worst years of my life
@@ -41,7 +38,6 @@
 - bendy and the ink machine
 - hamilton
 - tbhk
-- dragon ball
 - samurai pizza cats
 - yokai watch
 - ghostbusters
