@@ -4,7 +4,7 @@
 
 # " when you're different, sometimes you feel like a mistake. "
 
-# R+E
+# LOSVER
 
 🐉 **hi! im michael/mike or any other name you may know me by. my former git user was soniccds** 🐉
 
