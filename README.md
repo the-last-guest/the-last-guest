@@ -1,5 +1,5 @@
-# " im still here. "
+# " be strong. "
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=soniccds)
 
-# " i will put you back together. "
+# " always be strong. "
