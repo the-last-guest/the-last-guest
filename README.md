@@ -7,4 +7,5 @@
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=soniccds)
 
-hei :D
+
+![pony-town-c!punz ,, c+h enc ,, w2i-stand-cry-padded-4x](https://github.com/user-attachments/assets/d7639606-fb77-410a-904d-14b22259eb5d) <--- look at this idiot :/
