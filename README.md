@@ -10,4 +10,4 @@
 ![pony-town-c!punz ,, c+h enc ,, w2i-stand-cry-padded-4x](https://github.com/user-attachments/assets/d7639606-fb77-410a-904d-14b22259eb5d) <--- look at this idiot :/
 
 
-<img width="200" height="500" alt="Untitled147_20260216132219" src="https://github.com/user-attachments/assets/6abdc98e-e1aa-4e04-b419-40bda49f53c5" /> <--- thank you @MAGGOTSLIVE for the beautiful art it looks just like me
+<img width="200" height="500" alt="Untitled147_20260216132219" src="https://github.com/user-attachments/assets/6abdc98e-e1aa-4e04-b419-40bda49f53c5" /> <--- thank you apri for the beautiful art it looks just like me
