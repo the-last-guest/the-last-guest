@@ -1,6 +1,4 @@
-this is a wip
-
-guys i wanna change my git user but ive been known as the-last-guest fir so long........
+formerly the-last-guest
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=soniccds)
 
